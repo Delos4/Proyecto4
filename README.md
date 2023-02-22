@@ -1,2 +1,2 @@
 # Proyecto4
-Irinia Ikram Manu
+Irina Ikram Manu
